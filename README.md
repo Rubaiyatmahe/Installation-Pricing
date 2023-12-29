@@ -28,7 +28,9 @@ Petty Shop
 ![16](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/d5a1047f-e661-4158-b6c6-7192dd7274a9)
 ![Uploading 17.png…]()
 ![18](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/1a53e864-0215-48a9-b802-0e2391a45294)
-![19](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/c16ec4b0-2930-46cd-86bc-11713985a9ec)![20](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/635d0669-4e81-40d0-96dd-0d4726b97d6f)
+![19](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/c16ec4b0-2930-46cd-86bc-11713985a9ec)
+![20](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/635d0669-4e81-40d0-96dd-0d4726b97d6f)
+Done ^
 ![20](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/f70c0166-260d-4c4e-bd58-4e457419c5bc)
 ![21](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/cf2d521f-d892-4927-a3e3-6dc261affced)
 ![22](https://github.com/Rubaiyatmahe/Installation-Pricing/assets/80895946/e5719d15-0e53-490e-a8c4-d3039337b5f6)
